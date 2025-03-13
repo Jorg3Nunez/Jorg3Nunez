@@ -7,3 +7,4 @@
 - ⚡ Fun fact: I'm retired from the Air Force after 21 years of service
 
 
+![image](https://github.com/user-attachments/assets/da8a89f2-7cc0-471f-907e-85549a95328e)
